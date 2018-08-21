@@ -6,3 +6,4 @@ Steve Jobs
 
 ## Motivational video
   * [Before You Waste Time - WATCH THIS | by Jay Shetty](https://www.youtube.com/watch?v=vPaS85IA6oY)
+  * [This is why some people always succeed - You Must See This - Motivational Video](https://www.youtube.com/watch?v=GPHnVpOQY_Q)
